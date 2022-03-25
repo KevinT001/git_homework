@@ -8,5 +8,5 @@ Shout out to my girlfriend for helping support my career change goal.
 
 
 This sentence is for class practice.
-I am hungry
+
 I want to go fishing when its warm.
